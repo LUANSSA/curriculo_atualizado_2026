@@ -1,0 +1,1 @@
+# curriculo_atualizado_2026
